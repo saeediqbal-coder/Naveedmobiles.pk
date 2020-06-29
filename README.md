@@ -1,2 +1,0 @@
-# naveediqbal.github.io
-Assignment
